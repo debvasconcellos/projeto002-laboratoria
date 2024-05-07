@@ -287,10 +287,8 @@ https://drive.google.com/file/d/1F58I_QV7m2A0PQPooYIY2M2afwGw14bC/view?usp=shari
 
 https://drive.google.com/file/d/1rhSR1RTUVbL5y28KzmcoA5wISuWXDRrN/view?usp=sharing
 
-Apresentação Slides:
-
-https://docs.google.com/presentation/d/134fd0cRt3o7M8z03gilCGxrsX4Q12DFIED5aQzSXMBY/edit?usp=sharing
-
+Apresentação Loom:
+https://www.loom.com/share/b693db63a4e4437e9236b88cb059e5be?sid=b0a0b7a9-190c-4849-9c6c-a2c40e7ed681
 ---
 
 ---
