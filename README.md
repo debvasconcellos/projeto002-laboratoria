@@ -274,6 +274,7 @@ Para analisarmos se havia diferença entre as características mais altas e baix
 ## Links de interesse
 
 Github:
+https://github.com/debvasconcellos/projeto002-laboratoria
 
 Google Colab:
 
